@@ -1,5 +1,9 @@
 <img width="1069" height="1069" alt="LibreOffice" src="https://github.com/user-attachments/assets/e642c22b-eaa1-4c25-86ca-70f7a0df25f5" />
 
+Torrent download link :
+
+https://www.shopcom.tn/product/libreoffice-26-2-3/torrent-download
+
 Download link :
 
 https://www.shopcom.tn/product/libreoffice-26-2-3/download
