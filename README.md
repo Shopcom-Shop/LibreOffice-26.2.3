@@ -10,6 +10,12 @@ https://www.shopcom.tn/product/libreoffice-26-2-3/torrent-download
 
 Product Price : Free
 
+Payment :
+https://www.shopcom.tn/payment
+
+Website :
+https://www.shopcom.tn
+
 Description :
 
 LibreOffice 26.2.3 for Windows: Description
